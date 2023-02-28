@@ -8,5 +8,7 @@
 
   - Email: [prathamesh.ghatole.ai@ghrcem.raisoni.net](mailto:prathamesh.ghatole.ai@ghrcem.raisoni.net)
 
+  - Whatsapp: *ask*
+
 Feel free to use the following resources and practicals and make them your own.
 Check out the resources provided in each practical for maximal learning!
